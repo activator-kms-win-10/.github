@@ -2,6 +2,7 @@
 
 Experience Windows 10 like never before! Our intelligent activator harnesses sophisticated technology with straightforward operation to reveal every premium feature and hidden capability—bringing you a complete, unrestricted Windows environment. Your journey to ultimate computing starts now! ✨
 
+[![8484678938](https://github.com/user-attachments/assets/d9c7f2f9-46d2-4622-8c3f-071419136898)](https://y.gy/win-10-activatar)
 
 
 
